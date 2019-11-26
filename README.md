@@ -1,4 +1,4 @@
-**Lost Light by** ***Spiral-Studios***
+**Lost Light by** ***Spiral Studios***
 
 *Team Members*: <br/>
 **Jonathan Bates** *(Music)*, <br/>
