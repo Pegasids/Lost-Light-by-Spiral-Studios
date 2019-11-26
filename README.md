@@ -17,6 +17,7 @@ Game of the Year <br/>
 Excellence in Writing and Story, <br/>
 ***Audio Achievement (Awarded)***, <br/>
 Technical Achievement <br/>
-https://sites.google.com/ualberta.ca/cmput250/9th-ceremony-2017/lost-light
+https://sites.google.com/ualberta.ca/cmput250/9th-ceremony-2017/lost-light <br/>
+http://www.studentgamesarchive.ca/portfolio/lost-light/ <br/>
 <br/>
 <img src="./lostlight.jpg" alt="Lost Light"/> <br/>
