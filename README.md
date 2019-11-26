@@ -15,7 +15,7 @@ Andrew Bernakevitch
 Nominated for: <br/>
 ***Audio Achievement (Awarded)***, <br/>
 Excellence in Writing and Story, <br/>
-Game of the Year <br/>
+Game of the Year, <br/>
 Technical Achievement <br/>
 <br/>
 https://sites.google.com/ualberta.ca/cmput250/9th-ceremony-2017/lost-light <br/>
